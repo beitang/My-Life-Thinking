@@ -16,6 +16,7 @@
 - Simple design
 - Writing: can write good article to make some money
 - Cultivate kids
+- Competence to make money
 
 # My wanted habits
 - Keep reading
