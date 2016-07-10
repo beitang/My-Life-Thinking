@@ -1,1 +1,2 @@
 # Notes for Principles by Ray Dalio
+> I want you to think yourself - to decide 1) what you want, 2) what is true, and 3) what to do about it. I want you to do that in a clear-headed, thoughtful way, so that you get what you want. I wrote this book to help you do that. I am going to ask only two things of you - 1) that you be open-minded and 2) that you honestly answer some questions of what you want, what is true, and what you want to do about it.
