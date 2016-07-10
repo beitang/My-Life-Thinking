@@ -26,3 +26,5 @@
 # My dreams
 - Traveling around to see world famous buildings
 - Work with or know some really excellent person
+- Traveling by living in famous hotels
+- 财务自由
