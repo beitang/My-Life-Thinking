@@ -17,6 +17,7 @@
 
 # Part 1: The Importance of Principles
 > Answer all questions with complete honesty, without worrying what I or others might think. That honesty will allow you to be comfortable living with your own principles, and to **judge yourself by how consistently you operate by them**. If you don’t have many well-thought-out principles, don’t worry. We will get there together, if we remain open-minded.
+> 
 > **1) What are principles?**
 > 
 > Your values are what you consider important, literally what you “**value**.” Principles are what allow you to live a life consistent with those values. Principles connect your values to your actions; they are beacons that guide your actions, and help you successfully deal with the laws of reality. It is to your principles that you turn when you face hard choices.
