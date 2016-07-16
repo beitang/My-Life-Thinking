@@ -20,4 +20,13 @@
 > 
 > **1) What are principles?**
 > 
-> Your values are what you consider important, literally what you “**value**.” Principles are what allow you to live a life consistent with those values. Principles connect your values to your actions; they are beacons that guide your actions, and help you successfully deal with the laws of reality. It is to your principles that you turn when you face hard choices.
+> Your values are what you consider important, literally what you “**value**.” Principles are what allow you to live a life consistent with those values. Principles connect your values to your actions; they are beacons that guide your actions, and help you successfully deal with the laws of reality. It is to your principles that you turn when you face hard choices.
+> 
+> **2) Why are principles important?**
+> 
+> All successful people operate by principles that help them be successful. Without principles, you would be forced to react to circumstances that come at you without considering what you value most and how to make choices to get what you want. This would prevent you from making the most of your life. While operating without principles is bad for individuals, it is even worse for groups of individuals (such as companies) because it leads to people randomly bumping into each other without understanding their own values and how to behave in order to be consistent with those values.
+> 
+> **3) Where do principles come from?**
+> 
+> Sometimes we forge our own principles and sometimes we accept others’ principles, or holistic packages of principles, such as religion and legal systems. While it isn’t necessarily a bad thing to use others’ principles—it’s difficult to come up with your own, and often much wisdom has gone into those already created—adopting pre-packaged principles without much thought exposes you to the risk of inconsistency with your true values. Holding incompatible principles can lead to conflict between values and actions—like the hypocrite who has claims to be of a religion yet behaves counter to its teachings. Your principles need to reflect values you really believe in.
+
