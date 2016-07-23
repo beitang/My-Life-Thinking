@@ -38,5 +38,11 @@
 > 
 > **5) How well do you think they will work and why?**
 > 
+> Those principles that are most valuable come from our own experiences and our reflections on those experiences. Every time we face hard choices, we refine our principles by asking ourselves difficult questions.
+> 
+> As another example, “I won’t steal” can be a principle to which you refer when the choice of whether or not to steal arises. But to be most effective, each principle must be consistent with your values, and this consistency demands that you ask: Why? Is the reason you won’t steal because you feel empathy for your potential victim? Is it because you fear getting caught? By asking such questions, we refine our understanding, and the development of our principles becomes better aligned with our core values. To be successful, you must make correct, tough choices. You must be able to “cut off a leg to save a life,” both on an individual level and, if you lead people, on a group level. And to be a great leader, it is important to remember that you will have to make these choices by understanding and caring for your people, not by following them.
+> 
+> You have to answer these questions for yourself. What I hope for most is that you will carefully consider the principles we will be exploring in this document and try operating by them as part of the process of discovering what works best for you. In time, the answers to these questions will evolve from “Ray’s principles” to “my principles,” and “Ray” will fade from the picture in much the same way as memories of your ski instructor or basketball coach fade after you have mastered the sport.
+
 
 
