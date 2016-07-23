@@ -30,5 +30,13 @@
 > 
 > Sometimes we forge our own principles and sometimes we accept others’ principles, or holistic packages of principles, such as religion and legal systems. While it isn’t necessarily a bad thing to use others’ principles—it’s difficult to come up with your own, and often much wisdom has gone into those already created—adopting pre-packaged principles without much thought exposes you to the risk of inconsistency with your true values. Holding incompatible principles can lead to conflict between values and actions—like the hypocrite who has claims to be of a religion yet behaves counter to its teachings. Your principles need to reflect values you really believe in.
 > 
-> **4) Do you have principles 
+> **4) Do you have principles that you live your life by? What are they?**
+> 
+> Your principles will determine your standards of behavior. When you enter into relationships with other people, your and their principles will determine how you interact. People who have shared values and principles get along. People who don’t will suffer through constant misunderstandings and conflicts with one another. Too often in relationships, people’s principles are unclear. Think about the people with whom you are closest. Are their values aligned with yours?
+> 
+> **What do you value most deeply?**
+> 
+> **5) How well do you think they will work and why?**
+> 
+
 
