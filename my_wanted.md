@@ -32,6 +32,7 @@
 - Most time peace
 - Brave to adapt to new environment
 - Passionate for something
+- No worry for money
 
 # My dreams
 - Traveling around to see world famous buildings
