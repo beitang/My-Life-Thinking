@@ -44,5 +44,7 @@
 > 
 > You have to answer these questions for yourself. What I hope for most is that you will carefully consider the principles we will be exploring in this document and try operating by them as part of the process of discovering what works best for you. In time, the answers to these questions will evolve from “Ray’s principles” to “my principles,” and “Ray” will fade from the picture in much the same way as memories of your ski instructor or basketball coach fade after you have mastered the sport.
 
+# My Most Fundamental Life Principles
+> Time is like a river that will take you forward into encounters with reality that will require you to make decisions. You can’t stop the movement down this river, and you can’t avoid the encounters. You can only approach these encounters in the best way possible.
 
 
