@@ -46,5 +46,15 @@
 
 # My Most Fundamental Life Principles
 > Time is like a river that will take you forward into encounters with reality that will require you to make decisions. You can’t stop the movement down this river, and you can’t avoid the encounters. You can only approach these encounters in the best way possible.
+> 
+> So what I really wanted to do now was beat the market. I just had to figure out how to do it.
+> 
+> The pursuit of this goal taught me:
+> 
+> **1) It isn't easy for me to be confident that my opinions are right.** In the markets, you can do a huge amount of work and still be wrong.
+> 
+> **2) Bad opinions can be very costly.** Most people come up with opinions and there's no cost to them. Not so in the market. This is why I have learned to be cautious. No matter how hard I work, I really can't be sure.
+> 
+> **3) The consensus is often wrong, so I have to be one independent thinker.** To make any money, you have to be right when they're wrong.
 
 
